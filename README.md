@@ -1,6 +1,6 @@
 <h1 align="center"> CRYPTO TIRACK </h1> 
 <p align= "center"> <kbd> <img  src="https://imgur.com/WhnDiyT"width="420"> </kbd><br><br>
-
+<blockquote class="imgur-embed-pub" lang="en" data-id="WhnDiyT"><a href="//imgur.com/WhnDiyT"></a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
 <p align="center"><a href="https://t.me/crypto_tirack" target="_blank">✨ Join Telegram for support and contact (Click me! ) ✨ </a>
 
 
