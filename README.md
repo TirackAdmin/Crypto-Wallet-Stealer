@@ -1,1 +1,20 @@
-Wallet Stealer Software 🔥 Steal Pass Phrases of CRYPTO Wallets! Bitcoin, Ethereum, BNB, LTC, DOGE, SOLANA, XRP, TETHER. Brute Force 12 Word Secret Phrase.
+<p align="center"><a href="https://t.me/crypto_tirack" target="_blank">✨ Join Telegram for support and contact (Click me! ) ✨ </a>
+
+
+## Wallet Stealer Software 🔥 Steal Pass Phrases of CRYPTO Wallets! Bitcoin, Ethereum, BNB, LTC, DOGE, SOLANA, XRP, TETHER. Brute Force 12 Word Secret Phrase.
+
+
+
+
+## Features:
+- ✅ Works for all wallets!
+
+- ✅ Bitcoin, Ethereum, BNB, LTC, DOGE, SOLANA, XRP, TETHER!
+
+- ✅ EARN 76$ MINIMUM DAILY!
+
+- ✅ 100% Automatic!
+
+- ✅ Easy to run!
+
+
